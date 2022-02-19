@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @arcadefi
+- 👀 I’m interested in web3, play to earn gaming and decentralized identity
+- 📫 check out my newsletter at https://www.arcadefi.xyz
